@@ -33,15 +33,7 @@ HealthBuddy presents a transformative approach to managing health through advanc
 
 
 
-![image](https://github.com/user-attachments/assets/a8d7b05c-eca8-4109-8e08-94f910d0ac76)
 
-   ![image](https://github.com/user-attachments/assets/690627b6-8e55-4d89-85c3-d85a94d5d1d9)
-
-![image](https://github.com/user-attachments/assets/5487f1f0-73fa-445e-8aa6-d69c3d6e866d)
-![image](https://github.com/user-attachments/assets/e060552a-b480-4d1d-8175-c09e931f2ceb)
-
-
-![image](https://github.com/user-attachments/assets/0dffb8c3-1a51-4183-862f-6ac5d18533f7)
 
 
 
